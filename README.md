@@ -24,4 +24,4 @@
 **Контакты:**
 - Telegram: @dazzens
 - Email: axel657@yandex.ru
-- Телефон: +7 (915) 496-86-71
+
